@@ -15,6 +15,4 @@ Sou DJ nas horas vagas (que são poucas)
 
 Fundei a QuartoEstudio a 20 Anos. Em 2017 transformamos ela em uma agência de marketing digital.
 
-
-
 ![Ah! Um café.](/img/products-grid2.jpg)
